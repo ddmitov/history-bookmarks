@@ -33,7 +33,6 @@
     * XX century  
       * Films  
         * ["На Нож!" 100 г. от Балканската Война/100 years since the Balkan War - YouTube](https://www.youtube.com/watch?v=rTeoNKVO4v8)  
-        * [Tsar Ferdinand I of Bulgaria I WHO DID WHAT IN WW1? - YouTube](https://www.youtube.com/watch?v=ajGM_7CB9LU)  
         * [Борис ІІІ - Загадъчната смърт на Царя - Филм TV7 - YouTube](https://www.youtube.com/watch?v=anjS0ox-Mdg)  
         * [Братя Прошек - YouTube](https://www.youtube.com/watch?v=3XCIirzgFYI&list=UUdGCiRS3W24TUGUAtCPaDmQ)  
         * [Българският XX-ти век - YouTube](https://www.youtube.com/playlist?list=PLPdoCJBh6_hxIr17rNLLWRTnfoK3wA6uP)  
@@ -44,12 +43,9 @@
         * [Кратка история на теснопътните железници в България - YouTube](https://www.youtube.com/watch?v=9XPsPst_GYc)  
         * [На нож! Българският боен дух - YouTube](https://www.youtube.com/watch?v=F1jLI0NDXp0)  
         * [Най-старите кадри от София? - YouTube](https://www.youtube.com/watch?v=8ITs4lR49ko)  
-        * [Национален календар - YouTube](https://www.youtube.com/playlist?list=PLPdoCJBh6_hygFL2uVNkHWY-o1rJWgLKu)  
-        * [Памет.BG - Забравените командири, еп.3 - YouTube](https://www.youtube.com/watch?v=K0AS3OveX3s)  
         * [Пленени Башибозуци -Кадри от Балканската Война (1912-1913) - YouTube](https://www.youtube.com/watch?v=rHPPtOQ0d3c)  
         * [Първата световна война 1914-1918г. - YouTube](https://www.youtube.com/watch?v=hfU-tKdmzfU)  
         * [Разходка в Стара София - www.stara-sofia.com - YouTube](https://www.youtube.com/watch?v=Dnpjz-1t5_M)  
-        * [СЪЕДИНЕНИЕТО НА БЪЛГАРИЯ - YouTube](https://www.youtube.com/watch?v=v_HSqQEt-Fw)  
       * Maps  
         * [File:Balkans-ethnic (1861).jpg - Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Balkans-ethnic_(1861).jpg)  
         * [File:Bulgaria after Treatry of Neuilly-sur-Seine.png - Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Bulgaria_after_Treatry_of_Neuilly-sur-Seine.png)  
@@ -193,9 +189,6 @@
     * XV - XIX century  
       * Films  
         * ["Amsterdam" 18th century ship [HD] - YouTube](https://www.youtube.com/watch?v=NBDz9h2WTWk)  
-        * ["Петергоф: дворец Марли и павильон "Эрмитаж" - "Красуйся, град Петров!" - YouTube](https://www.youtube.com/watch?v=1ysQmPGmcFw)  
-        * [A Tour of HMS Victory From VHS tape 1993 - YouTube](https://www.youtube.com/watch?v=8yWH_CxlMaQ)  
-        * [Biography of Michelangelo for Kids: Famous Art for Children - FreeSchool - YouTube](https://www.youtube.com/watch?v=ML1PA_Dxa_M&list=LLuJ_W3DfrQoaZuCiUYlW-eA&index=15&t=65s)  
         * [Canon LIVE FIRE test - 18th century canister shot - YouTube](https://www.youtube.com/watch?v=lMILWzE9f0k)  
         * [Climbing Brunelleschi's Dome at the Duomo in Florence, Italy - YouTube](https://www.youtube.com/watch?v=ohB1sNzpBe0)  
         * [Cupola di Santa Maria del Fiore, Firenze - YouTube](https://www.youtube.com/watch?v=SHGc1aYyYZI)  
@@ -206,12 +199,10 @@
         * [Martin Luther, the Reformation and the nation | DW Documentary - YouTube](https://www.youtube.com/watch?v=1qeRj_qfNM0&list=LLuJ_W3DfrQoaZuCiUYlW-eA&index=22&t=625s)  
         * [Matchlock and wheellock firing according to authentic French 17th century regulations - YouTube](https://www.youtube.com/watch?v=Yzf0ZiVr9qw)  
         * [The Netherlands: Working Windmills - YouTube](https://www.youtube.com/watch?v=SNlc8Jj1F-Q)  
-        * [The War for Independence, 1775-1783 - YouTube](https://www.youtube.com/watch?v=kCj1xALT9aw)  
         * [Top 7 Leonardo da Vinci Inventions - YouTube](https://www.youtube.com/watch?v=PwOlIGGDVjE)  
         * [Un jour à Versailles - YouTube](https://www.youtube.com/watch?v=ETmC3jkDAwY&spfreload=10)  
         * [WORKING WINDMILL The craft of milling : a day of work at 'De Zandhaas' cornmill - YouTube](https://www.youtube.com/watch?v=t9KI2g-r8rA)  
         * [Летний дворец Петра I - YouTube](https://www.youtube.com/watch?v=Qj75iZT06ag)  
-        * [Мраморный дворец - YouTube](https://www.youtube.com/watch?v=p1hwtijdjs0)  
       * Maps  
         * [Atlas of colonialism - Wikimedia Commons](https://commons.wikimedia.org/wiki/Atlas_of_colonialism)  
         * [Atlas of the Ottoman Empire - Wikimedia Commons](https://commons.wikimedia.org/wiki/Atlas_of_the_Ottoman_Empire)  
@@ -346,7 +337,6 @@
       * [Twentieth Century Atlas - Death Tolls](http://necrometrics.com/20c5m.htm)  
       * [WW1 Timeline - A detailed history of the Great War 1914-1918](http://www.greatwar.co.uk/timeline/ww1-timeline.htm)  
       * [Warsaw Pact - Wikipedia, the free encyclopedia](https://en.wikipedia.org/wiki/Warsaw_Pact)  
-      * [What people in 1900 thought the year 2000 would look like - The Washington Post](http://www.washingtonpost.com/news/wonkblog/wp/2015/10/04/what-people-in-1900-thought-the-year-2000-would-look-like/)  
       * [World War I - Wikipedia, the free encyclopedia](https://en.wikipedia.org/wiki/World_War_I)  
       * [World War I casualties - Wikipedia, the free encyclopedia](https://en.wikipedia.org/wiki/World_War_I_casualties)  
       * [World War II casualties - Wikipedia](https://en.wikipedia.org/wiki/World_War_II_casualties#Non-Jews_persecuted_and_killed_by_Nazi_and_Nazi-affiliated_forces)  
